@@ -1,1 +1,0 @@
-# Metodi-sbora-b-fnaliza-dannih-v-seti-internet-
